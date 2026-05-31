@@ -1,6 +1,6 @@
 
 
-<img src="https://64.media.tumblr.com/f89104c27a429c15ac5d363d07bba89e/e40dccc1a5dc2477-e8/s2048x3072/3e51565a887d4c050fb7424682f715056681423e.pnj" width="450" style="text-align: center;">
+<img src="https://64.media.tumblr.com/c4901803f31d153caf6b3655e4c27cce/17afa9a848734b1a-a9/s2048x3072/ac6af57ac6ee1eaf20305825a4c4e50b513183ed.pnj" width="600" style="text-align: center;">
 
 > <a href="https://empyreanreflection.atabook.org"> sign new ata</a>⋮ ⌗ ┆<a href="https://kreiipheus.straw.page">strawpage</a>
 
