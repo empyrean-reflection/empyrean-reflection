@@ -2,7 +2,7 @@
 
 <img src="https://64.media.tumblr.com/c4901803f31d153caf6b3655e4c27cce/17afa9a848734b1a-a9/s2048x3072/ac6af57ac6ee1eaf20305825a4c4e50b513183ed.pnj" width="600" style="text-align: center;">
 
-> <a href="https://empyreanreflection.atabook.org"> sign new ata</a>⋮ ⌗ ┆<a href="https://kreiipheus.straw.page">strawpage</a>
+> <a href="https://empyreanreflection.atabook.org"> sign new ata</a>⋮ ⌗ ┆<a href="https://kreiipheus.straw.page">strawpage</a>⋮ ⌗ ┆<a href="https://www.tiktok.com/@k1tty_orphy">tiktok</a>⋮ ⌗ ┆<a href="https://www.tumblr.com/orphyix">tumblr</a>
 
 feel free to int plz!! i love talking to ppl i just dont wanna follow ppl on github lol
 
